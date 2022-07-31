@@ -3,7 +3,7 @@
 ### 基础
 
 - [规则](https://m.v.qq.com/play.html?vid=w0360ztyr7g&cid=)
-- [握拍](https://m.v.qq.com/play.html?vid=c08071fflnp&cid=)
+- [正手握拍](https://m.v.qq.com/play.html?vid=c08071fflnp&cid=)
 - [高远球挥拍分解动作](https://m.v.qq.com/play.html?vid=g0811e949ov&cid=)
 - [高远球挥拍连贯动作](https://m.v.qq.com/play.html?vid=g0814wx5smv&cid=)
 - [正手发大球动作](https://m.v.qq.com/play.html?vid=a0818s5ubl8&cid=)
